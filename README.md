@@ -1,1 +1,0 @@
-# bapi-p3-the-scoop
